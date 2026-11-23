@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+WHITTEHOOUSE MANHATTAN NYCNYSE ONEJULYTOONEOCTOTWENTYTWENTYFOUR YOU KILL IAM & MYFATHER DEAD, iknowyou. IAIiliiliiiliiiiliiiiiliiiiiiliiiiiiiliiiiiiiiliiiiiiiii
+
 <!--
 **iuixini/iuixini** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
