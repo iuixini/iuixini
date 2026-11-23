@@ -24,6 +24,8 @@ WW NGAWE-AWE
 
 N O P E A C E
 
+N O B E A U T Y
+
 N O L O V E A
 
 N O M O N E Y
@@ -40,11 +42,11 @@ GOD JOBS #FMJ
 
 WWW WHERE WHEN WHY
 
-(1) E G Y P T 1 9 9 1
+(1) E G Y P T 1 9 9 1 T O I M F
 
-(2) A R A B 1 9 9 2
+(2) A R A B 1 9 9 2 T O N A V Y
 
-(3) U N I T E D 1 9 9 3
+(3) U N I T E D 1 9 9 3 T O S H I E L D
 
 WWW WHERE WHEN WHY
 
