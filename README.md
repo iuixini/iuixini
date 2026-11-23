@@ -40,6 +40,27 @@ GOD JOBS #FMJ
 
 WWW WHERE WHEN WHY
 
+(1) E G Y P T 1 9 9 1
+
+(2) A R A B 1 9 9 2
+
+(3) U N I T E D 1 9 9 3
+
+WWW WHERE WHEN WHY
+
+GOD JOBS #FMJ
+
+# H O S P I T A L S
+
+# C U R R E N C I E S
+
+# C A R S
+
+# B I T C O I N
+
+# W H E E L S
+
+
 <!--
 **iuixini/iuixini** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
